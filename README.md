@@ -2,4 +2,3 @@
 <p align="center">𐙚　　frei　　♡︎　　he/it　　19<br>
   rentry for more info　　˃ᴗ˂
 <p align="center"><img src=https://i.postimg.cc/y8zjpVkw/sweet.gif></p>
-<p align="center"><img src=https://i.postimg.cc/wj5NGtYs/IMG_7401.png></p>
